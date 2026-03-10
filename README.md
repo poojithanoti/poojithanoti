@@ -19,4 +19,4 @@
 - Data Analysis
 
 📫 Connect with me
-LinkedIn: https://www.linkedin.com/in/poojitha-noti
+LinkedIn: www.linkedin.com/in/poojitha-noti-39a848339
